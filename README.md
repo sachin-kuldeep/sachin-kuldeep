@@ -1,5 +1,3 @@
-# sachin-kuldeep 
-
 
 🔥 Hi, I'm Sachin Kuldeep
 
