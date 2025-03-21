@@ -7,4 +7,4 @@
 
 📫 Reach me at [sachinkuldeep201@gmail.com](mailto:sachinkuldeep201@gmail.com)
 
-🔗 Connect with me: [LinkedIn]([https://linkedin.com/in/your-profile](https://www.linkedin.com/in/sachin-kuldeep-98577b289/)
+🔗 Connect with me: [LinkedIn](https://www.linkedin.com/in/sachin-kuldeep-98577b289/)
